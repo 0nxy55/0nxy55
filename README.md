@@ -1,8 +1,8 @@
 # ‎ ೃ⁀➷ zombie's Page
   <img src="https://files.catbox.moe/8k4zk4.png"/>
-<p align="sidr">
+<p align="center">
   <img src="https://cdn.discordapp.com/attachments/1234273549250990172/1249692697342775397/Untitled13_20240610045017.png?ex=66683a85&is=6666e905&hm=2504303143ce113eacf2d0a1c4ddecd8811be825474521fb7d6f84b06bd82c3f&" width="500"/>
- <img src="https://cdn.discordapp.com/attachments/1234273549250990172/1249698165397917799/Untitled14_20240610051331.png?ex=66683f9c&is=6666ee1c&hm=3973376d49f8faa41f97b3026367f7a4e7fef2f8ce6cb31793fe10d1f74cd312&"width="500"/>
+  <img src="https://cdn.discordapp.com/attachments/1234273549250990172/1249698165397917799/Untitled14_20240610051331.png?ex=66683f9c&is=6666ee1c&hm=3973376d49f8faa41f97b3026367f7a4e7fef2f8ce6cb31793fe10d1f74cd312&"width="700"/>
   <p align="center">
 <img src="https://files.catbox.moe/9tu3gb.gif"/>  <img src="https://files.catbox.moe/9tu3gb.gif"/>  <img src="https://files.catbox.moe/9tu3gb.gif"/>
     <p align="center">
