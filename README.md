@@ -13,5 +13,5 @@
  (My page is purposely for ponytown only!!) 
  <p align="center" > PS, I randomly follow ponytown github users or anyone who follows back :3 but, feel free to block me ^^
    <p align="center">
-   <img src="https://files.catbox.moe/n61b73.png"/>
+   <img src="https://files.catbox.moe/zl4cue.gif"/>
  <img src="https://files.catbox.moe/dkp81z.png"/>
