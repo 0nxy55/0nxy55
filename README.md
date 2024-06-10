@@ -1,6 +1,8 @@
 # ‎ ೃ⁀➷ zombie's Page
   <img src="https://files.catbox.moe/8k4zk4.png"/>
-<p align="center">
+    <p align="center">
+   <img src="https://files.catbox.moe/bo3n4e.jpg">
+     <p align="center">
   <img src="https://cdn.discordapp.com/attachments/1234273549250990172/1249700013102071918/Untitled13_20240610052102.png?ex=66684155&is=6666efd5&hm=f510322577d0c2fbf0c8c75e1c215daba1d34adb7abfa77bd5a8fc04a55e520e&" width="500"/>
   <p align="center">
 <img src="https://files.catbox.moe/9tu3gb.gif"/>  <img src="https://files.catbox.moe/9tu3gb.gif"/>  <img src="https://files.catbox.moe/9tu3gb.gif"/>
@@ -10,4 +12,6 @@
   hii Welcome to my github page (≧◡≦) Pls read my rentry if u don't want to read my detailed pateron/carrd. It's up to u, I don't mind ദ്ദി(ᵔᗜᵔ)!!
  (My page is purposely for ponytown only!!) 
  <p align="center" > PS, I randomly follow ponytown github users or anyone who follows back :3 but, feel free to block me ^^
+   <p align="center">
+   <img src="https://files.catbox.moe/n61b73.png"/>
  <img src="https://files.catbox.moe/dkp81z.png"/>
