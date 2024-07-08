@@ -4,7 +4,7 @@
  $${\color{yellow}Zombies \space \color{orange}Silly \space \color{yellow}Page!! \space \color{Orange}◎[●‿●]◎}$$
 
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/1234273549250990172/1255453461659652146/Untitled27_20240626022331.png?ex=667d2fa6&is=667bde26&hm=6457b59b817c3ab5c334b3ecd80a547381b24b2a9fb190f5d259e12696396500&"width="400"/>
+<img src="https://64.media.tumblr.com/9d86deee4953dfe61becfcb61f894416/d5f6b18da510a977-23/s400x600/5bc55c268c97e392080d57f729cac62c5aa4c6a5.pnj"width="400"/>
   
 $${\color{yellow}Hii \space \color{orange}This \space \color{yellow}Is \space \color{orange}only \space \color{yellow} extra \space \color{orange}Info!! }$$
 
