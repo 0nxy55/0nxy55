@@ -1,4 +1,1 @@
-remaking YAYAYA!!
-
-![2311391_70a92](https://github.com/user-attachments/assets/3718f2bb-f1b8-418b-b6c1-19dc965d98ac)
-it's not even a joke anymore, I love plastic tree like it's an addiction plss helppp.
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qdy5gosb7myg5ii4dneujg7zge&cover_image=true&theme=novatorem&show_offline=false&background_color=afb5c0&interchange=false&bar_color=bfbaba&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31qdy5gosb7myg5ii4dneujg7zge&redirect=true) <p align= center> remaking YAYAYA!! 
