@@ -1,1 +1,2 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qdy5gosb7myg5ii4dneujg7zge&cover_image=true&theme=novatorem&show_offline=false&background_color=afb5c0&interchange=false&bar_color=bfbaba&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31qdy5gosb7myg5ii4dneujg7zge&redirect=true) <p align= center> remaking YAYAYA!! 
+<p align= center>also feel free to interact!!
