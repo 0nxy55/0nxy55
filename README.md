@@ -1,6 +1,3 @@
-<p align= center> Hi!! Feel free to interact!! :3 
-<p align= center> Usually at Docks, Camps or with friends ^^ I Love silly humor, so be as fun as u want lol.
-
+<p align= center> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Short+Stack&duration=3000&pause=200&color=FFFFFFDA&background=FFFFFF00&center=true&vCenter=true&width=435&lines=Hii!!+Feel+Free+To+Interact!!+%3A3;Usually+at+Docks%2C+or+w%2F+friends+%3AD;Art+Credit+to+%40Leon_a_day" alt="Typing SVG" /></a>
 <p align= center> <img src="https://i.postimg.cc/c4vPtqM3/Screenshot-2024-09-07-11-15-12-PM.png" width="400" title="@Leon_a_day">
-<p align= center> BTW OMG TWITTER USER WHO DREW THIS IS @Leon_a_day BUT GUHH I LOVE SHEVA AND LEON WITH BIG PASSION AND THIS IS THE BEST!!
  <p align= center> <img src="https://64.media.tumblr.com/f8a1088993dfc9a28c9bff8d9d384130/93e030a15af1ce52-cc/s250x400/db2656f915da32759c7352fdf04dd192869f0b7c.pnj">
