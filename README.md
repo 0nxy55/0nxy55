@@ -4,5 +4,6 @@
 <p align= center> ︵‿︵‿୨♡୧‿︵‿︵
 <p align= center> Alt github! @DR0WNINGSINS
 <p align= center> ︵‿︵‿୨♡୧‿︵‿︵
-<p align= center> <img src="https://i.ibb.co/bmTJGqh/Studio-Ghibli.gif" width="500" height="300"/>
-<p align= center> Goal to reach 1k follows! :3
+<p align= center> <img src="https://i.ibb.co/Z1ZwGvc/true-story.png" width="600" height="200"/>
+  
+<p align= center> TRUE STORY!! CANONN
