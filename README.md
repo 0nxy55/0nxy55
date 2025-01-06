@@ -13,5 +13,5 @@
 <p align= center> $\textcolor{#5a5847}{Likes.ᐟ}$
 <p align= center> $\textcolor{#5a5847}{♯ Shows\ ♯movies\ ♯music\ ♯baking\ ♯drawing\ ♯Video\ Games}$
 <p align= center> $\textcolor{#5a5847}{Dni⊘}$
-<p align= center> $\textcolor{#5a5847}{♯Over\ 18\ ♯Pedo/loli \ ♯Heavy \ NSFW \ ♯homophobic/transphobic \ ♯ableist \ ♯Racist}$
+<p align= center> $\textcolor{#5a5847}{♯Over\ 18\ (thin\ ice!)\ ♯Pedo/loli \ ♯Heavy \ NSFW \ ♯homophobic/transphobic \ ♯ableist \ ♯Racist}$
 <p align= center> $\textcolor{#5a5847}{┗━✦❘༻tysm\ for\ reading!༺❘✦━┛}$
