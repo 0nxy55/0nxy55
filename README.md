@@ -1,4 +1,4 @@
- # $\textcolor{#5a5847}{Welcome\ to\ my\ page\ :3}$
+ # $\textcolor{#5a5847}{Welcome\ to\ my\ page\ :3\ .... Read\ below!}$
 <p align= center> <img src="https://i.ibb.co/t2dYPP6/I-hate-everything-Abt-u-ezgif-com-optimize.gif" width= 700 height=700/>
 <p align= center> $\textcolor{#5a5847}{┏━✦❘༻Zombie༺❘✦━┓}$
 <p align= center> $\textcolor{#5a5847}{♯She. her!}$
