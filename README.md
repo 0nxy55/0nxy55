@@ -1,1 +1,1 @@
-NO DESC because rmkkingg rentry :3
+NO DESC because rmkkingg rentry !
