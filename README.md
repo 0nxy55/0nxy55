@@ -1,1 +1,2 @@
-<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Twinkle+Star&duration=7000&pause=700&color=F7EDCACF&width=435&lines=for+every+kiss+you+give+me..;I'll+give+you+three!+%3C3" alt="Typing SVG" /></a>
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Twinkle+Star&duration=2000&pause=500&color=FFF2AD&center=true&vCenter=true&width=435&lines=Oh+since+the+day+I+saw+you..;I+have+been+waiting+for+you!;You+know+I+will+adore+you..;'till+eternity+!" alt="Typing SVG" /></a>
+<p align="center">  <img src="https://gifcity.carrd.co/assets/images/gallery02/67a77f76.gif?v=1e51ef61"/>
